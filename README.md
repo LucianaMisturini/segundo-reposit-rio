@@ -1,2 +1,2 @@
-# segundo-reposit-rio
+# segundo-repositório
 Colocando tópicos 
